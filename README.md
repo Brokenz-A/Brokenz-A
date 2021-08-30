@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Brokenz-A
+- 👀 I’m a Computer Science major in kent state
+- 💞️ I’m looking to collaborate on multipul platforms 
